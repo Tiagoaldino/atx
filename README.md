@@ -1,3 +1,2 @@
 # atx
 portfólio data science
-rttrtgfvfjgfkgjjfkvkcvcvcvjckvcjjvkcvjjcvjjckvjcvkcjvkvjckvjjckvcjvkcvjjckvjjc
